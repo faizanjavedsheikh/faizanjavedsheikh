@@ -1,7 +1,7 @@
 - Hi! Faizan here :)
 - BS Mechanical Engineering
 - MS Design & Manufacturing Engineering
-- Mechanical Design Engineer - R&D - Byonyks Medical Device 
+- Mechanical Design Engineer - R&D - Byonyks Medical Devices 
 - I’m currently learning Data Analysis
 - Reach out to me at
 -   Email: faizan.javed.sheikh@gmail.com
